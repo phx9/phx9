@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @phx9
+- 👀 I’m interested in blockchain
+- 🌱 I’m currently learning metaverse
+- 💞️ I’m looking to collaborate on web3
+- 📫 How to reach me phx9@pm.me
